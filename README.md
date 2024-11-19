@@ -1,3 +1,4 @@
+![Colorful Streamer Illustration Twitch Banner](https://github.com/user-attachments/assets/878964c9-78b5-4221-a1bf-5127331cb8c3)
 # <h1 align="left">Olá Prazer Me chamo Vitor Gomes de Araújo</h1>
 
 ###
